@@ -1,2 +1,0 @@
-# zulhendraacademy
-mari belajar bersama
